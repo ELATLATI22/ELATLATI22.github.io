@@ -1,1 +1,0 @@
-# ELATLATI22.github.io
